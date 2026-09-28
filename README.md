@@ -1,0 +1,1 @@
+# Grandis-Nur-Azizah_124240045_kuis_A
